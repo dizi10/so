@@ -1,16 +1,16 @@
 :sparkles::sparkles:SoSo视频-最新地址发布:sparkles::sparkles:
 ==
-:heart: :point_right: 【最新地址】 ：[https://10s.sososp33.xyz/soso/](https://10s.sososp33.xyz/soso/)
+:heart: :point_right: 【最新地址】 ：[https://10s.sososp33.xyz/soso](https://10s.sososp33.xyz/soso)
 ------
-:heart: :point_right: 【最新地址】 ：[https://10s.sososp32.xyz/soso/](https://10s.sososp32.xyz/soso/)
+:heart: :point_right: 【最新地址】 ：[https://10s.sososp32.xyz/soso](https://10s.sososp32.xyz/soso)
 ------
-:heart: :point_right: 【最新地址】 ：[https://10s.sososp31.xyz/soso/](https://10s.sososp31.xyz/soso/)
+:heart: :point_right: 【最新地址】 ：[https://10s.sososp31.xyz/soso](https://10s.sososp31.xyz/soso)
 ------
-:heart: :point_right: 【最新地址】 ：[https://10s.sososp30.xyz/soso/](https://10s.sososp30.xyz/soso/)
+:heart: :point_right: 【最新地址】 ：[https://10s.sososp30.xyz/soso](https://10s.sososp30.xyz/soso)
 ------
-:heart: :point_right: 【最新地址】 ：[https://10s.sososp20.xyz/soso/](https://10s.sososp20.xyz/soso/)
+:heart: :point_right: 【最新地址】 ：[https://10s.sososp20.xyz/soso](https://10s.sososp20.xyz/soso)
 ------
-:heart: :point_right: 【最新地址】 ：[https://10s.sososp10.xyz/soso/](https://10s.sososp10.xyz/soso/)
+:heart: :point_right: 【最新地址】 ：[https://10s.sososp10.xyz/soso](https://10s.sososp10.xyz/soso)
 ------
 :heart: :point_right: 【永久地址】 ：[https://梦rガ.sot301.com/暑假作业](https://梦rガ.sot301.com/暑假作业)
 ------
